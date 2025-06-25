@@ -36,4 +36,4 @@ I aim to update this journal at least **once a week**, with summaries of what Iâ
 
 ---
 
-Thanks for visiting! Feel free to explore and reach out if you have suggestions or want to collaborate on learning.v
+Thanks for visiting! Feel free to explore and reach out if you have suggestions or want to collaborate on learning.
